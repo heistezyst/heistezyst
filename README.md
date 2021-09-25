@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @heistezyst
-- 👀 I’m interested in games
+- 👀 I’m interested in chemistry 
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
